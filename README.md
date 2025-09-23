@@ -1,0 +1,1 @@
+# Yandex_Camp_Contest_SPBGU2025
